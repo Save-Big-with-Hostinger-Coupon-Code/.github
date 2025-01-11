@@ -1,4 +1,4 @@
-# Hostinger Coupon Codes: \[Upto 90% OFF\] Save Extra Discount
+## Hostinger Coupon Codes: \[Upto 90% OFF\] Save Extra Discount
 ================================================================
 
 ## Save Big with Hostinger Coupon Code: [75% + 15% OFF] Discount
